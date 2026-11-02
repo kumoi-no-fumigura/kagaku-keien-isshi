@@ -1,8 +1,8 @@
-# 桂園一枝（続日本歌学全書本）（けいえんいっし）
+# 桂園一枝（続日本歌学全書 底本）（けいえんいっし）
 
 雲居の文庫（くもゐのふみぐら）の一作品です。著作権の保護期間が満了した刊本から起こした本文を、誰でも読み・使い・直せるように置いています。
 
-**サイトで読む：[桂園一枝（続日本歌学全書本）（雲居の文庫（くもゐのふみぐら））](https://informanellica.com/kumoi-no-fumigura/read.html?work=zokukagaku04-keien-isshi)**（原本の画像の表示、修正案の送信ができます）
+**サイトで読む：[桂園一枝（続日本歌学全書 底本）（雲居の文庫（くもゐのふみぐら））](https://informanellica.com/kumoi-no-fumigura/read.html?work=zokukagaku04-keien-isshi)**（原本の画像の表示、修正案の送信ができます）
 
 | | |
 |---|---|
